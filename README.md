@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mubby1674
 - 👀 I’m interested in learn web
-- 🌱 I’m currently learning cybersecurity
+- 🌱 I’m currently learning something cool
 - 💞️ I’m looking to collaborate on webiners
 - 📫 How to reach me whassapn 08166779124
 - 😄 Pronouns: ...
